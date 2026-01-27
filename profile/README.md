@@ -1,12 +1,12 @@
 ## Free US Number for Verification Online
 
-[**Free US Number for Verification**](https://dub.sh/us-number-verifi)
+[**Free US Number for Verification**](https://freereceivesms.top/)
 
 **Free US number for verification** is a simple and reliable way to receive SMS messages online using a temporary United States phone number. This service is ideal for account verification, receiving OTP codes, and completing registrations without using your personal phone number.
 
 All SMS messages are received directly in your browser — no SIM cards, no mobile apps, and no registration required.
 
-[![Free US Number for Verification](https://github.com/user-attachments/assets/5441926d-d856-40f6-9a8d-8d2b2980c7c4)](https://dub.sh/us-number-verifi)
+[![Free US Number for Verification](https://github.com/user-attachments/assets/5441926d-d856-40f6-9a8d-8d2b2980c7c4)](https://freereceivesms.top/)
 
 ---
 
